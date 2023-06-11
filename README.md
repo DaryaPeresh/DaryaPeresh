@@ -5,3 +5,4 @@ I worked in the field of hospitality and tourism, in sales, and now I decided to
 I love positivity and live with positivity. I love learning something new every day. I adore animals (but in general, I am the mother of all homeless cats) 
 In people I appreciate kindness, humanity, responsibility, decency, since I myself am so thanks to my military dad. I believe in a bright future and my success in it.
 All the best!)
+💬 Ask me about anything, I'm happy to help)
